@@ -14,4 +14,4 @@ Ohhhhh yes
 
 #### Sub headline
 
-Viker stadig efter sommerferie.
+Virker stadig efter sommerferie.
