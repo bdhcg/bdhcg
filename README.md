@@ -14,4 +14,4 @@ Ohhhhh yes
 
 #### Sub headline
 
-It is rock solid !!
+Viker stadig efter sommerferie.
